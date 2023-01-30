@@ -1,0 +1,1 @@
+# win22hw6-mianaki
